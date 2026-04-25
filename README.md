@@ -70,7 +70,7 @@ You don't need to be a math genius or a macroeconomics expert to benefit from th
 If you’re tired of trying to figure out the markets on your own, why not look into a managed solution? It might be the best financial decision you make this year. Just keep your expectations realistic, stay patient, and let the pros do what they do best!
 <h2>Related HashTags</h2>
 #ForexFundManagement #WealthManagement #ForexTrading #InvestmentStrategies #FinancialGrowth #ForexMarket #CurrencyTrading #PortfolioManagement #FXManagement #TradingSolutions #InstitutionalTrading #CapitalGrowth #RiskManagement #SmartInvesting #PassiveIncome
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
